@@ -6,7 +6,7 @@
 
 优势：不记录日志，2048位加密超强隐私保护等等很多，美国、德国最喜欢的VPN之一
 
-# 2.Express梯子 [Express官网地址](https://dwz.cn/2sM2OgPy)
+# 2.Express梯子 [Express官网地址](https://dwz.cn/m8lO2PvJ)
 ✅多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
 
 优势：不限网速，160可选节点，3W个ip，24小时客服支持
@@ -26,7 +26,7 @@
 
 优势：不限制使用设备数，可以很多人共用
 
-# 6.Ivacy梯子 [Ivacy官网地址](https://dwz.cn/t12O0l3F)
+# 6.Ivacy梯子 [Ivacy官网地址](https://dwz.cn/duiqYiFx)
 美国的品牌，在外网的评价不错，TOP5的水平
 
 # 7.TODO 未来还会持续更新好用的梯子
