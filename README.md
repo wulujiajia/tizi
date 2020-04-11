@@ -6,7 +6,7 @@
 
 优势：不记录日志，2048位加密超强隐私保护
 
-# 2.Express梯子 [Express官网地址](https://dwz.cn/juFrGDl6)
+# 2.Express梯子 [Express官网地址](https://dwz.cn/2sM2OgPy)
 ✅多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
 
 优势：不限网速，160可选节点，3W个ip，24小时客服支持
