@@ -29,7 +29,12 @@
 # 6.Ivacy梯子 [Ivacy官网地址](https://dwz.cn/duiqYiFx)
 美国的品牌，在外网的评价不错，TOP5的水平
 
-# 7.TODO 未来还会持续更新好用的梯子
+# 7.PIA梯子 [PrivateInternetAccesss官网地址](http://www.privateinternetaccess.com/pages/buy-vpn/pintuan-gtizi)
+也是外网评价不错的，注重隐私保护
+
+优势：支持10台设备同时使用，不限带宽，有加密wifi等多种安全功能
+
+# 8.TODO 未来还会持续更新好用的梯子
 
 ----
 
