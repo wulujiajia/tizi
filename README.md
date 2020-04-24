@@ -34,9 +34,9 @@
 
 优势：支持10台设备同时使用，不限带宽，有加密wifi等多种安全功能
 
-# 8.ib梯子 [InvisibleBrowsing官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)
+# 8.ibVPN梯子 [InvisibleBrowsing官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)
 
-
+有24小时试用，无需绑卡
 
 # 9.TODO 未来还会持续更新好用的梯子
 
