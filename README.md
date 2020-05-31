@@ -4,6 +4,8 @@
 # 1.Nord梯子   [Nord官网地址](http://get.affiliatescn.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=excellent_tizi)
 ✅推荐，曾被评为No.1，超强加密，服务器节点5000+。
 
+✅最多人重复购买的梯子工具
+
 优势：不记录日志，2048位加密超强隐私保护等等很多，美国、德国最喜欢的VPN之一
 
 # 2.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=excellent&data1=tizi)
@@ -21,20 +23,10 @@
 
 优势：180可选节点，3W个ip，不记录日志，完全保护个人隐私
 
-# 5.Surfshark梯子 [Surfshark官网地址](https://get.surfshark.net/aff_c?offer_id=6&aff_id=3401)
-新兴服务商，在手机上服务评价不错，有最低14元每月的超性价比套餐
-
-优势：不限制使用设备数，可以很多人共用
-
-# 6.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=tizi)
+# 5.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=tizi)
 美国的品牌，在外网的评价不错，TOP5的水平
 
-# 7.PIA梯子 [PrivateInternetAccesss官网地址](http://www.privateinternetaccess.com/pages/buy-vpn/pintuan-gtizi)
-也是外网评价不错的，注重隐私保护
-
-优势：支持10台设备同时使用，不限带宽，有加密wifi等多种安全功能
-
-# 8.ibVPN梯子 [InvisibleBrowsing官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)
+# 6.ibVPN梯子 [InvisibleBrowsing官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)
 
 有24小时试用，无需绑卡
 
@@ -52,4 +44,4 @@
 
 本项目分享的工具仅为正常外贸、新媒体、海外业务交流等需要，切勿用于非法用途
 
-中国居民请自觉遵守法律法规，否则出现一切后果本项目作者概不负责
+用户请自觉遵守当地法律法规，出现一切后果本项目作者概不负责
