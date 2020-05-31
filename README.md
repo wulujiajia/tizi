@@ -4,7 +4,7 @@
 # 1.Nord梯子   [Nord官网地址](http://get.affiliatescn.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=excellent_tizi)
 ✅推荐，曾被评为No.1，超强加密，服务器节点5000+。
 
-✅最多人重复购买的梯子工具
+✅最多人再次购买的梯子工具
 
 优势：不记录日志，2048位加密超强隐私保护等等很多，美国、德国最喜欢的VPN之一
 
