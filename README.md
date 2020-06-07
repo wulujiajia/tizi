@@ -34,7 +34,7 @@
 
 ----
 
-项目原始地址：[https://github.com/excellentVPN/tizi](https://github.com/excellentVPN/tizi)
+项目原始地址：[https://github.com/bestCNVPN/tizi](https://github.com/bestCNVPN/tizi)
 
 选梯子最重要的就是 价格、网速、稳定性，根据自己需要决定买哪个吧
 
