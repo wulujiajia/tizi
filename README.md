@@ -23,7 +23,7 @@
 
 # ~~5.ibVPN梯子 [InvisibleBrowsing官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)~~
 
-~~不再推荐
+~~不再推荐~~
 
 # TODO 未来还会持续更新好用的梯子
 
