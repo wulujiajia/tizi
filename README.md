@@ -6,7 +6,7 @@
 
 ✅最多人再次购买的梯子工具
 
-优势：不记录日志，2048位加密超强隐私保护等等很多，美国、德国最喜欢的VPN之一
+优势：不记录日志，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
 
 # 2.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=excellent&data1=tizi)
 ✅多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
@@ -21,9 +21,9 @@
 # 4.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=tizi)
 美国的品牌，在外网的评价不错，TOP5的水平
 
-# 5.ibVPN梯子 [InvisibleBrowsing官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)
+~~# 5.ibVPN梯子 [InvisibleBrowsing官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)
 
-有24小时试用，无需绑卡
+~~不再推荐
 
 # TODO 未来还会持续更新好用的梯子
 
