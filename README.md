@@ -23,11 +23,8 @@
 # 4.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=tizi)
 美国的品牌，在外网的评价不错，TOP5的水平
 
-# ~~5.ibVPN梯子 [InvisibleBrowsing官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)~~
 
-~~不再推荐，其套餐、服务支持等不具备优势~~
-
-# TODO 未来还会持续更新好用的梯子
+# TODO 近期会持续更新好用的梯子，可以Star一下
 
 ----
 
