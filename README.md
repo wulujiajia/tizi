@@ -11,17 +11,28 @@
 优势：不记录日志，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
 
 
-# 2.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=excellent&data1=tizi)
+# 2.Panda梯子 [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
+✅ 后起之秀，2019年的黑马，有中文团队，对中国地区的支持也比较好
+
+✅ 3天免费试用，尽情体验网络的速度、稳定性，决定是否购买
+
+✅ 近期有6个月套餐、1年套餐的特惠活动
+
+优势：无流量限制，ECC超强加密，7天无理由退款，在亚洲地区非常受欢迎
+
+
+# 3.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=excellent&data1=tizi)
 ✅ 多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
 
 优势：不限网速，160可选节点，3W个ip，24小时客服支持
 
-# 3.Pure梯子 [Pure官网地址](https://billing.purevpn.com/aff.php?aff=42611&data1=github&data2=excellent_tizi)
+
+# 4.Pure梯子 [Pure官网地址](https://billing.purevpn.com/aff.php?aff=42611&data1=github&data2=excellent_tizi)
 香港品牌，超大带宽，直连通道，很多Mac使用它
 
 优势：180可选节点，3W个ip，不记录日志，完全保护个人隐私
 
-# 4.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=tizi)
+# 5.Ivacy梯子 [Ivacy官网地址](https://www.ivacykodi.com/easter-deal-2020/?aff=91814&data1=excellent&data2=tizi)
 美国的品牌，在外网的评价不错，TOP5的水平
 
 
