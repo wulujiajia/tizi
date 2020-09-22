@@ -18,7 +18,7 @@
 
 ✅ 近期有6个月套餐、1年套餐的特惠活动
 
-优势：无流量限制，ECC超强加密，7天无理由退款，在亚洲地区非常受欢迎
+优势：无流量限制，ECC超强加密，7天无理由退款，在亚洲地区非常受欢迎。隐私保护极好，注册甚至不需要邮箱
 
 
 # 3.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=excellent&data1=tizi)
