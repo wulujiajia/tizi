@@ -4,7 +4,7 @@
 # 1.Panda梯子 [Panda官网地址](https://www.panhdpe.xyz/r/22216799)
 ✅ 后起之秀，有中文团队，对中国地区的支持也非常好
 
-✅ 3天免费试用，尽情体验网络的速度、稳定性，决定是否购买
+✅ **3天免费试用**，尽情体验网络的速度、稳定性，决定是否购买
 
 ✅ 近期有6个月套餐、1年套餐的特惠活动
 
@@ -19,7 +19,7 @@
 
 优势：非常适合亚洲地区，在国内使用稳定，30天无理由退款
 
-# 3.Nord梯子   [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_click_id=excellent_tizi)
+# 3.Nord梯子   [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_sub2=tizi)
 ✅ 推荐，曾被评为No.1，超强加密，服务器节点5000+。
 
 ✅ 最多人再次购买的梯子工具
