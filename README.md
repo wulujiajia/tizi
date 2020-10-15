@@ -18,6 +18,8 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 
 ✅ 超低价的3年、5年套餐
 
+**限时优惠码：Ivacy20  **
+
 优势：非常适合亚洲地区，在国内使用稳定，30天无理由退款
 
 # 3.Nord梯子   [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_sub2=tizi)
@@ -27,6 +29,8 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 
 ✅ 近期有超值2年套餐
 
+**限时优惠码： NERDWRITER  **
+
 优势：不记录日志，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
 
 # 4.IPVanish梯子 [IPVanish官网地址](https://affiliategroove.com/scripts/click.php?a_aid=vvppnn&data1=git&data2=tizi)
@@ -34,6 +38,9 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 美国的知名品牌，30天内无理由退款，近期有大力度促销
 
 注意：IPVanish没有中国区镜像，因此需要先用其他可试用的梯子，才能打开官网
+
+**限时优惠码： OCT20  **
+
 
 优势：不限网速，不限制连接设备数，赠送250G的SugarSync云盘
 
