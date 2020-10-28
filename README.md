@@ -22,7 +22,7 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 
 优势：非常适合亚洲地区，在国内使用稳定，30天无理由退款
 
-# 3.Nord梯子   [Nord官网地址](https://go.nordlocker.net/aff_c?offer_id=15&aff_id=38201&url_id=6063&aff_sub=github&aff_sub2=tizi)
+# 3.Nord梯子   [Nord官网地址](http://get.affiliatescn.net/aff_c?offer_id=153&aff_id=38201&random_url=1&aff_click_id=github&aff_sub=github&aff_sub2=besttizi)
 ✅ 推荐，曾被评为No.1，超强加密，服务器节点5000+。
 
 ✅ 最多人再次购买的梯子工具
