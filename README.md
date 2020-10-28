@@ -72,7 +72,6 @@ Pure没有中国区镜像，因此需要用其他可试用的梯子，才能打�
 
 选梯子最重要的就是 价格、网速、稳定性，根据自己需要决定买哪个吧
 
-参考技术博客： [国内梯子](http://bestcnvpn.com/) [PC梯子](http://topcnvpn.com/) [电脑梯子](http://fastcnvpn.com/) [VPN梯子](http://top1vpn.top/)
 
 ----
 
