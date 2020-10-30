@@ -33,7 +33,16 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 
 优势：不记录日志，2048位加密超强隐私保护，30天无理由退款等等很多，美国、德国最喜欢的VPN之一
 
-# 4.IPVanish梯子 [IPVanish官网地址](https://affiliategroove.com/scripts/click.php?a_aid=vvppnn&data1=git&data2=tizi)
+
+# 4.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitbest&data1=tizi)
+多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
+
+**注意：**官方关闭了中国区镜像(产品牛逼就可以为所欲为吗~)，不影响购买后使用。因此需要先用其他可试用的梯子，才能打开官网
+
+优势：不限网速，160可选节点，3W个ip，24小时客服支持
+
+
+# 5.IPVanish梯子 [IPVanish官网地址](https://affiliategroove.com/scripts/click.php?a_aid=vvppnn&data1=git&data2=tizi)
 
 美国的知名品牌，30天内无理由退款，近期有大力度促销
 
@@ -43,15 +52,6 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 
 
 优势：不限网速，不限制连接设备数，赠送250G的SugarSync云盘
-
-
-
-# 5.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=excellent&data1=tizi)
-多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
-
-注意：Express官方关闭了中国区镜像，因此需要先用其他可试用的梯子，才能打开官网
-
-优势：不限网速，160可选节点，3W个ip，24小时客服支持
 
 
 # 6.Pure梯子 [Pure官网地址](https://billing.purevpn.com/aff.php?aff=42611&data1=github&data2=excellent_tizi)
