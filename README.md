@@ -39,7 +39,7 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 
 **注意** ：官方关闭了中国区镜像(产品牛逼就可以为所欲为吗~)，不影响购买后使用。因此需要先用其他可试用的梯子，才能打开官网
 
-优势：不限网速，160可选节点，3W个ip，24小时客服支持
+优势：不限网速，支持所有主流设备，160地区节点，3W个ip，24小时客服支持
 
 
 # 5.IPVanish梯子 [IPVanish官网地址](https://affiliategroove.com/scripts/click.php?a_aid=vvppnn&data1=git&data2=tizi)
