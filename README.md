@@ -11,7 +11,7 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 
 优势：无流量限制，ECC超强加密，7天无理由退款，在亚洲地区非常受欢迎。隐私保护极好，注册甚至不需要邮箱
 
-❗ 使用提示：选SVIP线路，更稳定
+❗ ❗ 使用提示：选SVIP线路，更稳定
 
 
 
@@ -38,6 +38,7 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 
 优势：非常适合亚洲地区，在国内使用稳定，30天无理由退款
 
+❗ ❗ 使用提示：**由于中国大陆地区的网络特殊，ivacy针对性的提供了几个专用安装包**，如果自己找不到的，这里给大家提供最近的下载包：Windows、Mac、Android安装包（其他未提到的环境，还是用统一的APP或安装包即可）
 
 
 # 4.Express梯子 [Express官网地址](https://www.xvbelink.com/?a_fid=tizi_vpn&chan=gitbest&data1=tizi)
