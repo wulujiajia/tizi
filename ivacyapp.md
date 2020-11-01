@@ -5,4 +5,12 @@
 ![下载方式提示](pics/downloadtip.png)
 
 
-#### [Windows安装包下载](files/ivacy-windows-installation-instructions.zip)
+## 下载链接：
+
+#### [Windows安装包下载](files/ivacy-windows-installation-instructions.zip)   下载后，压缩包内有安装说明
+
+#### [Mac安装包下载](files/ivacy-mac-installation-instructions.zip)    下载后，压缩包内有安装说明
+
+#### [Android安装包下载](files/ivc_prime_2.0.apk)   下载后，安装包支持中文语言
+
+
