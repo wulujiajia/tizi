@@ -49,19 +49,8 @@ PC电脑好用梯子, 推荐靠谱的梯子，iPhone/Android/Mac/Linux/PC都可�
 优势：不限网速，支持所有主流设备，160地区节点，3W个ip，24小时客服支持
 
 
-# 5.IPVanish梯子 [IPVanish官网地址](https://affiliategroove.com/scripts/click.php?a_aid=vvppnn&data1=git&data2=tizi)
 
-美国的知名品牌，30天内无理由退款，近期有大力度促销
-
-注意：IPVanish没有中国区镜像，因此需要先用其他可试用的梯子，才能打开官网
-
-🔥🔥 **限时优惠码： OCT20**
-
-
-优势：不限网速，不限制连接设备数，赠送250G的SugarSync云盘
-
-
-# 6.Pure梯子 [Pure官网地址](https://billing.purevpn.com/aff.php?aff=42611&data1=github&data2=excellent_tizi)
+# 5.Pure梯子 [Pure官网地址](https://billing.purevpn.com/aff.php?aff=42611&data1=github&data2=excellent_tizi)
 香港品牌，超大带宽，直连通道，很多Mac使用它
 
 Pure没有中国区镜像，因此需要用其他可试用的梯子，才能打开官网
